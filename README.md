@@ -1,8 +1,7 @@
-- 👋 Hi, I’m milcentkgatla
-- 👀 I’m interested in watching movies and sleeping.
-- 🌱 I’m currently learning informaton systems
+- 👋 Hi, I’m milcent kgatla
+- 👀 I’m interested in watching movies , instagram reels and sleeping.
+- 🌱 I’m currently in my final year studying informaton systems
 - 💞️ I’m looking to collaborate on school based work
-- 📫 How to reach me @milcentpulane on instagram
 - 😄 Pronouns: usual
 - ⚡ Fun fact: Gummy bears were originally called "dancing bears."
 
